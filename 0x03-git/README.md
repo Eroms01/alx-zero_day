@@ -1,1 +1,1 @@
-My second commit
+I wanna be a genius lol
